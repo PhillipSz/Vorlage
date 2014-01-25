@@ -1,3 +1,3 @@
-bj
+Vorlage
 ==
-just what i have done.
+just what i can use.
